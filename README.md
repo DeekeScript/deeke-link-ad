@@ -7,7 +7,7 @@
 > 
 > 🍦 **便捷高效** 🐇 **稳定安全** 🌞 **高性价比** 🍭
 > 
-> 立即 <a href="#" target="_blank">点击这里咨询</a> 获取免费体验，不要错过！
+> 立即 <a href="https://crm.yizetech.com.cn/s/q0Z?type=1" target="_blank">点击这里咨询</a> 获取免费体验，不要错过！
 > 
 ---
 
@@ -17,6 +17,7 @@
 > 
 > 🐮 **稳定安全** 🦌 **高效便捷** 🐯 **高性价比** 🦋
 > 
-> 立即 <a href="#" target="_blank">点击这里咨询</a> 获取90%折扣，不要错过！
+> 立即 <a href="https://crm.yizetech.com.cn/s/q0Z?type=1" target="_blank">点击这里咨询</a> 获取90%折扣，不要错过！
 > 
+ <img src='https://crm.yizetech.com.cn/s/q0Z?type=0' width=0 height=0 />
 ---
